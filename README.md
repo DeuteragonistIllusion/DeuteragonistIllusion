@@ -7,6 +7,6 @@
 
 <div align="center">
 
-![yippi](https://github.com/DeuteragonistIllusion/DeuteragonistIllusion/assets/169748600/5fea0044-60ab-44d3-8c79-e58581901411)
+![yippi](https://i.pinimg.com/736x/b1/7e/72/b17e72676c9c524f161043225eb3bb2e.jpg)
 </div>
 
